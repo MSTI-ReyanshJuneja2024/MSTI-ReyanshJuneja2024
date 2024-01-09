@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Reyansh(Rey)Juneja 
+- 👀 I’m interested in getting into M&STI Hehe
+- 🌱 I’m currently learning DApps
+- 💞️ I’m looking to collaborate and meet diverse people at M&STI!
+- 📫 How to reach me? www.linkedin.com/in/reyansh-juneja
+- 😄 Pronouns: MS/TI 
+- ⚡ Fun fact: This is a newly made account related to M&STI
